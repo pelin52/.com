@@ -1,0 +1,2 @@
+# .com
+grafik ödevim
